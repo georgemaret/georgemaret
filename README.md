@@ -13,7 +13,6 @@ willing to develop open source projects.
 
 
 
-Is in search of the field that interests me!
- 
+Is in search of the field that interests me!😉
  
  
