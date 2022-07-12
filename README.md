@@ -18,6 +18,6 @@ Ambitious to become a infosec professional!!�
 
 Doing my B.tech in Mechanical engineering at CET,Trivandrum
 
-Being mechanical engineering student never limits from being what I aspire to be as for me, I love mechanical and I live CSE!
+Being Mechanical engineering student never limits from being what I aspire to be as for me, dream is a state function!
 
 ### Coding makes me feel  better!
