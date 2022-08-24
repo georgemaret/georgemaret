@@ -1,4 +1,4 @@
-# welcome to GDM's repo! 
+# Welcome to GDM's profile! 
 
  
  
@@ -7,17 +7,14 @@
 
 Discovering more about systems and its functioning
 
-Too much interested in finguring out flaws and vulnerability and measuring how much can a mistake cost you!
+Exploring the field of Infosec and Looking forward to gain some professional experience!
 
 
 
-
-Ambitious to become a infosec professional!!�
+C++ is my first and favourite language!
  
  
 
 Doing my B.tech in Mechanical engineering at CET,Trivandrum
-
-Being Mechanical engineering student never limits from being what I aspire to be as for me, dream is a state function!
 
 ### Coding makes me feel  better!
